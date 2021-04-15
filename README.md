@@ -1,1 +1,1 @@
-# PrivacyNstore
+ Privacy Policy URL
